@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on an amazing project, stay tuned to find out<br>👯 I’m looking forward to working together on world-changing software together<br>
+🔭 I’m currently working on an amazing project, stay tuned to find out<br>👯 I’m looking forward to working together on world-changing software<br>
 
 
 ## 🌐 Socials:
